@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on something fun to code and learn 
 - 📫 How to reach me - telegram - https://t.me/mia668t
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: I'm transwoman surviving in Russia, pls be respectful
+- ⚡ Fun fact: I'm transwoman surviving in Russia, pls be respectful ❤
 
 <!---
 mia668-main/mia668-main is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
